@@ -1,5 +1,0 @@
-# kichu
-
-ljhjghjkgk
-
-ljbjkbjkbjkbjk
